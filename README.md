@@ -1,1 +1,1 @@
-# technicallyethical
+# TechnicallyEthical
